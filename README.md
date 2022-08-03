@@ -7,6 +7,7 @@
 </p>
 <h1 align="center">★ Memek ★ <img src="https://github.com/mitul3737/mitul3737/blob/main/mituls code.gif"
 
+![20200808_160757](https://raw.githubusercontent.com/Niki404-Cyber/Niki404-Cyber/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
 [![FB-IMG-16595104855369183.jpg](https://i.postimg.cc/9f8CjFJ5/FB-IMG-16595104855369183.jpg)](https://postimg.cc/GByZFRWq)
 
