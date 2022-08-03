@@ -28,7 +28,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=markzuckerberg-kode&label=Profile%20views&color=0e75b6&style=flat" alt="markzuckerberg-kode" /> </p>
 
 
-## KASIH BINTANG WOY🌟🌟🌟🌟🌟🌟🌟
+## KASIH BINTANG WOY🌟🌟🌟🌟🌟🌟
 ![Typing SVG](https://readme-typing-svg.herokuapp.com?lines=Selamat+Bersenang-senang....!+)
 
 
