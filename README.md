@@ -8,7 +8,7 @@
 <h1 align="center">★ Memek ★ <img src="https://github.com/mitul3737/mitul3737/blob/main/mituls code.gif"
 
 
-[![FB-IMG-16595101738950505.jpg](https://i.postimg.cc/FsyV7tjB/FB-IMG-16595101738950505.jpg)](https://postimg.cc/gn0ZTTtV)
+[![FB-IMG-16595104855369183.jpg](https://i.postimg.cc/9f8CjFJ5/FB-IMG-16595104855369183.jpg)](https://postimg.cc/GByZFRWq)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
