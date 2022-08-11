@@ -15,11 +15,9 @@
 
 ![20200808_160757](https://raw.githubusercontent.com/Niki404-Cyber/Niki404-Cyber/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
-[![FB-IMG-16595104855369183.jpg](https://i.postimg.cc/9f8CjFJ5/FB-IMG-16595104855369183.jpg)](https://postimg.cc/GByZFRWq)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
-<img align="left" alt="Terminal" width="26px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/terminal/terminal.png"
 <a href="https://twitter.com/mark" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="mark" height="30" width="40" /></a>
 <a href="https://fb.com/asepyusup21" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="asepyusup21" height="30" width="40" /></a>
 <a href="https://instagram.com/asepyusup18" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="asepyusup18" height="30" width="40" /></a>
