@@ -29,8 +29,8 @@
 
 
 
-[![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/?text=Asalamualaikum+kak+Asep+ganteng)[![](https://img.shields.io/badge/Telegram-blue?logo=Telegram&logoColor=red&labelColor=white)](https://t.me/ASEPYUSUP)
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=markzuckerberg-kode&label=Profile%20views&color=0e75b6&style=flat" alt="markzuckerberg-kode" /> </p>
+[![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white) ](https://wa.me/?text=Asalamualaikum+kak+Asep+ganteng)[![](https://img.shields.io/badge/Telegram-blue?logo=Telegram&logoColor=red&labelColor=white)](https://t.me/ASEPYUSUP)
+
 
 
 ## KASIH BINTANG WOY🌟🌟🌟🌟🌟🌟
